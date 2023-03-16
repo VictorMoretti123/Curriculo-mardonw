@@ -13,3 +13,4 @@
 ## EXPERIÊNCIAS 
 - EXPERIENCIAS:
 -1 Ano de experiência na area de cobrança, na empresa Paschalotto e tambem na financeira PeB
+-
